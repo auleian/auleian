@@ -1,4 +1,4 @@
-- 👋 Hi, I’m IAN
+- 👋 Hi, I’m IAN AULE
 - 📫 How to reach me auleian@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love math
